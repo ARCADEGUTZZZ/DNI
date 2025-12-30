@@ -1,8 +1,9 @@
 # <ins>***DNI***<ins>
 
-![Purpleguy4](https://github.com/user-attachments/assets/5894a323-b34e-4d32-96f8-91e3e9500033)
+<img width="1000" height="574" alt="image" src="https://github.com/user-attachments/assets/30bb6516-575d-4721-ae4f-d11ac1643af0" />
 
-- I DON'T LIKE JAX!! so I may hide some of y'all I'm sorry, but also not sorry.
+
+- I DON'T LIKE JAX from TADC!! so I may hide some of y'all I'm sorry, but also not sorry.
  
 - I do not like forsaken, Hazbin Hotel / Helluva Boss, I WILL hide you.
  
@@ -13,3 +14,5 @@
 - If you harass other players or try to make a big thing about nothing. Pony Town is a game where you roleplay and socialize, y'all are lowkey too chronically online
 
 - If you say doubles dni or anything like that, if you're REALLY that sensitive about it, hide me. don't make a whole ass deal about it, don't tell me to change my skin, don't send anyone after me. You are in charge of your own damn internet circle.
+
+- 
