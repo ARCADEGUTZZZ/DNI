@@ -15,4 +15,4 @@
 
 - If you say doubles dni or anything like that, if you're REALLY that sensitive about it, hide me. don't make a whole ass deal about it, don't tell me to change my skin, don't send anyone after me. You are in charge of your own damn internet circle.
 
-- 
+- not a strict DNI, but i dont ship matt/edd or matt/tord, or edd/tom n stuff like that so if im matt or edd in EW, i dont do ships! please dont cuddle me 👍
