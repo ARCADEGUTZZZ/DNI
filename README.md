@@ -15,4 +15,6 @@
 
 - If you say doubles dni or anything like that, if you're REALLY that sensitive about it, hide me. don't make a whole ass deal about it, don't tell me to change my skin, don't send anyone after me. You are in charge of your own damn internet circle.
 
-- not a strict DNI, but i dont ship matt/edd or matt/tord, or edd/tom n stuff like that so if im matt or edd in EW, i dont do ships! please dont cuddle me 👍
+- not a strict DNI, but i'm neutral on matt/edd, matt/tord, edd/tom. however, i ask that you don't cuddle me or do a ship rp if im either my matt skin or edd skin, just out of personal pref ^^
+
+- i dont actually care if tomtord shippers interact, but pls dont force the ship on me lol.
